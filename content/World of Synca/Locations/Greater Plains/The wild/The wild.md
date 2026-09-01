@@ -1,0 +1,2 @@
+The wild is a large place mostly covered by woodlands. It is the homeland for the wood elves. There are multiple communities built among the trees but they all report to their leader of [[Olas]] who lives in the direct centre of the wild in a place called [[Solas]] which is the biggest community in the wild. Covered in countless forests, monsters lurk all over the place and what is actually in the wild is not fully known. One the last places not fully discovered by the people of Synca.
+

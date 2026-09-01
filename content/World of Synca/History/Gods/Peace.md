@@ -1,0 +1,1 @@
+Peace hopes that the whole world can live harmoniously, they want a world where no one fights and there is no wars but this could lead them to believe when the lower class is still being oppressed, is better than a war since no one is dying violently, sometimes being viewed as a God who does not action. A lot of spiritual people look to them

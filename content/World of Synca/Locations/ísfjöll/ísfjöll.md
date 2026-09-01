@@ -1,0 +1,1 @@
+The long mountain range claimed to once inhabit giants but now no life is seen there. Where are the giants?

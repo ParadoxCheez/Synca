@@ -1,0 +1,1 @@
+A place within the [[Greater Plains]] that is no one is sure on how to find. It is rumoured to be the home of the fairies but no one has seen one so there is no proof that they exist there. But people claim to have gone there and seen them.

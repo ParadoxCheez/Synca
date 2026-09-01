@@ -1,0 +1,1 @@
+The goddess, Love, is truly the embodiment of benevolent, she truly believes everyone would be good if they were shown a little bit of love in their life. To the fault of the most heinous of people is supported by the goddess of love despite their actions. However, people truly full of love are still supported by her.

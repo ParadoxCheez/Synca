@@ -1,0 +1,1 @@
+War does not advocate for war at all despite the name but he believes that conflict is the only way to solve problems no matter what form it takes. Arguments, fights or even all out war, War believes that conflict brings the fastest results and is behind strongminded individuals who fight for what they believe
