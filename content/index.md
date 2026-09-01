@@ -1,5 +1,5 @@
 ---
-title: Welcome to Info Page for the World of Synca.
+title: Welcome to the Info Page for the World of Synca.
 ---
 
 This will continually update when new people are met but this is the base information I think will help with character building in this world!
