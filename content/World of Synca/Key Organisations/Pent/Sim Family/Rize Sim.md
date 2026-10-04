@@ -1,0 +1,1 @@
+The only one left of the [[Sim Family]] and swore vengeance against the [[Eledia Family]] but is abiding their time. 

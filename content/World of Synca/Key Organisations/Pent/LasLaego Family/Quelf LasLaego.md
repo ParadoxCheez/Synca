@@ -1,0 +1,1 @@
+A man of parallels, once seen as a stern and terrifying man, Quelf has the love of the people in the [[Greater Plains]]. His carefree attitude accompanied with his serious nature when it comes to political matters has lead him to be a trustworthy member of the [[Pent]], and someone that a lot look up to.

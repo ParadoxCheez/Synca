@@ -1,0 +1,3 @@
+The head of the [[Eledia Family]] 
+
+Rose to power after hatching the dragon egg, his father gave him when he was young. The egg was thought to be dead and was given to him in mockery, as he was seen as the dark child of the family. But unbeknownst to his father and family, Garth spent many days nurturing the dragon egg until it hatched and started to raise the dragon in a secret place in the [[Greater Plains]]. Once it had grown to age, he used it to massacre his family and assumed head of the Eledia Family. Due to the fear of what his dragon could do, the other families of the [[Pent]] allowed him to take his place in the Elven world and turned a blind eye to all of what he did.

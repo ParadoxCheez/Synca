@@ -1,0 +1,1 @@
+A group rumoured to want to overthrow the governing body behind Synca, known as [[Base]].

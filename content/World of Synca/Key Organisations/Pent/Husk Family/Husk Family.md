@@ -1,0 +1,1 @@
+The Husk family is known for the night adventures into the [[Greater Plains]]. Made up great warriors and scientists, they have made millions of discoveries in the nocturnal life of the wilds. Due to the long lasting travels at night, they have developed an acute sense in darkness, some saying that they see better in it. This family is led by [[Raemus Husk]]

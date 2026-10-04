@@ -1,0 +1,1 @@
+With a flirty and aloof attitude, James Timely is usually the mouthpiece of the [[Timely Brothers]] as he does love the attention that comes with the role of "Time Keeper" and does use this to his advantage to get some popularity with "everyone". Despite this, he is the most conservable out of the 3

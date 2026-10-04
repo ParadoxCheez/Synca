@@ -1,0 +1,1 @@
+A library containing the long history of Synca and mostly the elves, ran by a frail old woman with the name of [[???]], it is rumoured to show the history of it all, to those who truly seek it.

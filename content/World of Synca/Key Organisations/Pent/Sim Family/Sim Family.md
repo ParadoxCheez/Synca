@@ -1,0 +1,1 @@
+The Sim Family was a large family once but was hit hardest by the attack by [[Garth Eledia]] and the only one is left [[Rize Sim]].

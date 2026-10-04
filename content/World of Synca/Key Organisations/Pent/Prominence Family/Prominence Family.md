@@ -1,0 +1,1 @@
+The Prominence Family, lead by [[Rupee Prominence]], is a family that has high interest in the history of the ones before them. Their family, all historians in nature, are said to be the walking memories of the past having such an deep and astounding memory of the past events.

@@ -1,0 +1,1 @@
+Not seen for a long while and assumed dead but her children believe that she is alive so they kept the seat vacant while her wife [[Dream Prominence]] holds it

@@ -1,0 +1,1 @@
+Zack Timely, quite old and scruffy in appearance, treats his role in the universe as a tough gritty job that shouldn't be glitz and glamour. But could take a page out of his brother [[James Timely]] and not smell like shit most of the time.

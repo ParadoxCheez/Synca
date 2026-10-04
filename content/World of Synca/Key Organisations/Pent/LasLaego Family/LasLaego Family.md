@@ -1,0 +1,1 @@
+[[Quelf LasLaego]], head of the the Elf Police, is quite a stern man on all matters of the fact but when it comes to his wife and children another side of him is seen. The LasLaego family freely roam between occupations in the [[Greater Plains]], which has lead to them to have quite an influence over the Elves.

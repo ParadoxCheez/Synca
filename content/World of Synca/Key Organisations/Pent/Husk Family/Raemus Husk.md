@@ -1,0 +1,1 @@
+Quite an agreeable fellow in the [[Pent]]. He is a real lover of science and exploration, he leads his family with a great sense of courage with a keen sense of exploration. However, he was not blessed with fertility so is making a choice of his heir from.

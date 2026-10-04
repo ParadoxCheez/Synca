@@ -1,0 +1,5 @@
+A very young woman elf with long orange hair
+
+The only child/daughter of [[Garth Eledia]]. Currently works under tutelage of [[Raemus Husk]], she works in the [[Greater Plains]] consistently as people aren't too fond of her being an Eledia. Chose to stay in Utopia as the people of [[The wild]] have stronger negative opinions against the [[Eledia Family]].
+
+While being raised by Garth Eledia, Rose was treated than less than Elf, he abused her, tortured her, even tried to force her to be a man when he couldn't accept his first-born would be a woman.  For years, she was tormented by that man before he finally had no use for her and discarded on the curb. No one else wanted the child of Garth Eledia so Raemus Husk raised her and is now looking towards her as his heir, despite protest from the rest of the community.

@@ -1,0 +1,1 @@
+An orb rumoured to contain an entity between life and death. No one knows what really goes on or how they happen.

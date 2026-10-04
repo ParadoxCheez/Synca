@@ -1,0 +1,1 @@
+Hotel mostly used by guests in [[Utopia]], with 54 floors, the quality of the rooms increases as you ascend the building. On the highest floors, most of the Elven elites live there occasionally when visiting from the [[The wild]]

@@ -1,0 +1,1 @@
+A place where people can buy anything their hearts desire, occasionally visited by the most adamant adventurers thinking that the first dibs on new items from the greater plains but is just a casual store for causal people!
