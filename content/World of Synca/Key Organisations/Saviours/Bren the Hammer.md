@@ -1,0 +1,1 @@
+Bren the Hammer, is one the less scientifically intelligent founding members of the [[Saviours]]. Supposedly, she went on a quest to find herself and has not returned. 

@@ -1,1 +1,1 @@
-The shadow leaders of Synca, unknown in name but known in power.
+The shadow leaders of Synca, unknown in name but known in power. Not supported by many people at all, and no one really knows where or who they are.

@@ -1,0 +1,1 @@
+An ancient witch of the dragons [[Mera]] owns a small little shop in [[Amaghị]]. People question how long the shop has been there as everyone knows of who she is but never who she is.

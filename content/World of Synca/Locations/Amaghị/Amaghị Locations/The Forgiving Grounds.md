@@ -1,0 +1,1 @@
+The place where the lay dead dragons to rest a place known for its strong spiritual and magical energy. A place people come to show their respect. Looked after by death, as he serves his punishment for his disgusting crimes, this place holds thousands of years of dragon history

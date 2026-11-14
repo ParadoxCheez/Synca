@@ -1,0 +1,1 @@
+Named after the late [[Jack Snow]], Jack is a young inventor in [[Wetlands Wet Lands University]].  He is attempting to follow the path of Jack Snow and build his own suit of armour 

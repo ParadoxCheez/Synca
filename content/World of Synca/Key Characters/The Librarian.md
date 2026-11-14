@@ -5,3 +5,5 @@ A mysterious figure who appeared in the world for a reason no one can figure out
 Names herself The Librarian as she believes she holds the stories of the existence.
 
 You can reach The Librarian's domain by placing one of her coins on the floor as it opens a portal to her realm.
+
+But things aren't going as planned.

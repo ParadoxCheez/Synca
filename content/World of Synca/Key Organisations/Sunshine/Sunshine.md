@@ -1,0 +1,1 @@
+An adventuring party that supposedly believes in protecting the people of Synca and across the multiverse.

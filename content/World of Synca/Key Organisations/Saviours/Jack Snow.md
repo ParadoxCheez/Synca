@@ -1,0 +1,1 @@
+Jack Snow, one of the founding members of the [[Saviours]] was a scientist who worked in the Wetlands. He was able to build his own armour to allow him to leave water for long periods of time and fight toe to toe with the rest of the Saviours

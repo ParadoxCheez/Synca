@@ -1,0 +1,1 @@
+Rumoured to be psychopath that claims that their goal is to kill all the Gods. People believe that he has already killed some Gods. But then again, how would we know.

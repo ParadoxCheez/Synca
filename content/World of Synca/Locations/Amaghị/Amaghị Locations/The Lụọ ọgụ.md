@@ -1,0 +1,1 @@
+Despite their evolution for some outdated traditions, the dragons still enjoy recreational fighting and this takes place here. Named after the first leader of the dragons, this place is where they have weekly tournaments for people to fight for glory and money. This is also where they welcome each of their leaders into their new position.

@@ -1,0 +1,1 @@
+The place a lot of people in the wetlands go to study, Built by the late [[Jack Snow]], it was made with the intention to provide a level of education the wetlands didn't originally have.

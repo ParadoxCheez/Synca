@@ -1,0 +1,5 @@
+Max Stevens, one of the founding members of the [[Saviours]] was a humble scientist working in a Laboratory.
+
+Through talking with [[Remova Kurvic]], it was discovered that she essentially raised Max as his mother didn't treat him well. She was the [[Warden of the East]] and had strong distaste for Max's soft nature as she believed violence and strength were the most important things that made a man. She held competitions yearly to find the strongest man in their colony so that she could procreate with him so she could make the strongest children and further her bloodline. 
+
+Max was deemed the weakest of her children and she continually referred to him as pussy constantly so he opted to focus on his studies and science since he didn't have the body for physical combat. He focused on his science and went to big city to share his studies on his material he was working on called [[Kotonium]] which is where he met and fell for Remova. 
